@@ -1,4 +1,3 @@
-# 💞💍 **Marriage Trends in India: Love vs. Arranged** 💑✨
 # 💞💍 **Marriage Trends in India: Love vs. Arranged** 💑✨  
 
 ---
